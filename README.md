@@ -1,3 +1,6 @@
+
+🔍 Dit project helpt je om officiële, legale softwarelicenties te vinden tegen lage prijzen.
+
 # Goedkope & legale software kopen in 2025
 
 Bij SoftLicenties koop je officiële softwarelicenties voor een fractie van de prijs – 100% legaal en direct geleverd.
